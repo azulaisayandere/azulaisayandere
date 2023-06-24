@@ -1,2 +1,2 @@
-shit programmer of shit discord bots with shit features
+Programmer of discord bots with funny features
 こんちにゃ〜
